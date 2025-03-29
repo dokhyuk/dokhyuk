@@ -2,7 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=A5B1CF&label=_　　★　　_&base=9710)
 
-<img src="https://files.catbox.moe/wov1q2.webp">
+<img src="hi">
+
+hi i might remak
 
 hi guys check out @/or._v on tiktok especially any 괴담출근 works :-3
 
