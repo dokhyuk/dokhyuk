@@ -2,6 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=A5B1CF&label=_　　★　　_&base=9710)
 
+“I'll be all that you need... I'm outside your apartment.. Baby, come back to me.”
+
 <img src="https://files.catbox.moe/ggvhmw.png">
 
 don't remidn me of what kenshin did. do not. i hate ihm alot
