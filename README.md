@@ -2,7 +2,11 @@
 
 ![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=A5B1CF&label=_　　★　　_&base=9710)
 
-https://github.com/user-attachments/assets/18f5d0c0-1447-4219-a684-c3bea8fd89e1
+
+
+https://github.com/user-attachments/assets/c23f7e19-92da-4710-8bba-2aa54e5f351e
+
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yeslnco28d0j7p2y2efpb86u0&cover_image=true&theme=novatorem&show_offline=false&background_color=454545&interchange=false&bar_color=ffb5d8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
