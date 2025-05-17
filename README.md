@@ -1,6 +1,6 @@
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=A5B1CF&label=_　　★　　_&base=9710)
+![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=151915&label=_　　ㅠㅠ　　_&base=9710)
 
 <img src="">
 
