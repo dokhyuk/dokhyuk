@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=dokhyuk&style=plastic&color=151915&label=_　　ㅠㅠ　　_&base=9710)
 
-[idv addict](https://github.com/dollective)⠀⠀[nicoe](https://github.com/kouscat)⠀⠀[crissy❤️](https://github.com/starcrissy)
+[idv addict](https://github.com/dollective)⠀[nicotine](https://github.com/kouscat)⠀[crissy❤️](https://github.com/starcrissy)
 
 [5ogorkow](https://github.com/5uguru)⠀[kpopie](https://github.com/5uguru)⠀[hm whodis](https://github.com/C0GNITION)
 
