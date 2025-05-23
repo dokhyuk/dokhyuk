@@ -4,7 +4,7 @@
 
 [idv addict](https://github.com/dollective)⠀[nicotine](https://github.com/kouscat)⠀[crissy❤️](https://github.com/starcrissy)
 
-[5ogorkow](https://github.com/5uguru)⠀[kpopie](https://github.com/5uguru)⠀[hm whodis](https://github.com/C0GNITION)
+[5ogorkow](https://github.com/5uguru)⠀[kpopie](https://github.com/Ioonatic)⠀[hm whodis](https://github.com/C0GNITION)
 
 <img src="https://files.catbox.moe/j0ee89.png">
 
