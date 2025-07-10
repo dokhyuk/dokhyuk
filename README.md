@@ -4,5 +4,7 @@
 
 [![obraz_2025-07-09_195626223-removebg-preview](https://github.com/user-attachments/assets/993faca4-43c2-428e-95b0-4bd185a22077)](https://github.com/ukehole)
 
+𓏲ﾟ < wen crissy nico veri mika 3
+
 <p align="center"
 
