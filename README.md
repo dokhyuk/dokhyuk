@@ -6,7 +6,7 @@
 
 semi inactive 🤔 drug chan give me some lsd
 
-insanely fixated on alnst. fandom dniuid 💕🐇
+insanely fixated on alnst. fandom dniuid 🌼🐇
 
 <p align="center"
 
