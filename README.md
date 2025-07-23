@@ -4,7 +4,7 @@
 
 [my victim ♡](https://github.com/ukehole)⠀⠀[nicotine](https://github.com/kouscat)⠀⠀[crissy💕](https://github.com/starcrissy)
 
-semi inactive 🤔 drug chan give me some lsd
+semi active 🍀 i like bonedo, orv, and phasmo
 
 insanely fixated on alnst. fandom dniuid 🌼🐇
 
