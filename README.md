@@ -6,7 +6,7 @@
 
 semi active 🍀 i like bonedo, orv, and phasmo
 
-insanely fixated on alnst. fandom dniuid 🌼🐇
+insanely fixated on alnst. fandom iwec u guys r usually weird 🌼🐇
 
 <p align="center"
 
